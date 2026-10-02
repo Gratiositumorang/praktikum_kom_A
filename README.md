@@ -1,0 +1,1 @@
+# praktikum_kom_A
